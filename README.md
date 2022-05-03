@@ -1,7 +1,7 @@
 - 👋 Justin Reid, Tech and IT Recruitment Specialist working with Bright Purple
 - 🏙 Edinburgh, Scotland - I work with roles across the UK and beyond
 - 📧 justin.reid@brightpurple.co.uk 
-- 📞 0131 473 7036 - you can WhatsApp me here too!
+- 📞 0131 473 7036 - you can WhatsApp me here too! https://wa.me/01314737036
 - 🏢 https://linkedin.com/in/justinreid-bp
 
 Bright Purple are a specialist technology recruitment agency based in the heart of Edinburgh. Since 1995 we have been partnering with innovative clients to place thousands of permanent and contract candidates in Technology, IT and Business Change roles.
